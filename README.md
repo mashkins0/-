@@ -1,4 +1,4 @@
-[Напишите мне](mail:arkvn_w@icloud.com)
+[Напишите мне](mailto:arkvn_w@icloud.com)
 
 # Мой блог — 14 января 2026 года
 
